@@ -1,1 +1,15 @@
-# RAFIAT_O-
+# DATA ANALYST
+
+# ABOUT ME
+am a skilled data analyst
+
+# PROJECT
+
+# EDUCATION
+
+
+# CERTIFICATION
+
+
+
+# ALL CONTACT
